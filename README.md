@@ -1,6 +1,6 @@
-### Bem vindo ao meu perfil👋
+### Bem vindo ao meu perfil🎮😁🎣
 
-**chamo-me Miguel**
+**gosto de pescar, viajar e jogar🎣🎮🌍**
 
 ![](https://media1.tenor.com/m/LseAluK4K4AAAAAd/feliz-navidad-but-with-text.gif)
 
